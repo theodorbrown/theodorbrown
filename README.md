@@ -7,4 +7,4 @@
      
 - 📫 You want to reach me? Reach me by email at theodor.brown01@gmail.com
 
-               See you all 👋👋👋
+ See you all 👋👋👋
